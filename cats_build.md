@@ -27,4 +27,13 @@ or [here](https://www.pathofexile.com/trade/search/Necropolis/r6qJ32muQ) for che
 
 - [helmet search](https://www.pathofexile.com/trade/search/Necropolis/72EP5YRT5) ~20 c
 
-- [lethal pride time stamp](https://youtu.be/zT366ScUVOs?si=Kvv3WzgAMmR8V66_&t=1031)
+- [lethal pride time stamp](https://youtu.be/zT366ScUVOs?si=Kvv3WzgAMmR8V66_&t=1031) probably 25 div
+    - [search](https://vilsol.github.io/timeless-jewels/tree?jewel=2&conqueror=Akoya&seed=14269&location=61834&mode=stats&stat=1047)
+    - cheap one for 5% (https://www.pathofexile.com/trade/search/Necropolis/MqebDXqfJ)
+
+- [immutable force](https://www.pathofexile.com/trade/search/Necropolis/3E5gywkI5) can min roll, optional
+
+
+I will be building this build as I go along, getting good cheap stuff when it comes up on trade
+This looks like I will need ~100 divs for it to really come together
+
