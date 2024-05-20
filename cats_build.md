@@ -1,3 +1,6 @@
+
+[pob](https://pobb.in/u/Subtractem/cwcsoulrend)
+
 - 5 divines for [dark seer](https://www.pathofexile.com/trade/search/Necropolis/2nd6pUk)
     - can buy cheap one and roll with divines. just need +2 to life probably, which is 50/50
     - have these
@@ -44,6 +47,8 @@ or [here](https://www.pathofexile.com/trade/search/Necropolis/r6qJ32muQ) for che
 
 - [immutable force](https://www.pathofexile.com/trade/search/Necropolis/3E5gywkI5) can min roll, optional
 
+- [cluster jewel](https://www.pathofexile.com/trade/search/Necropolis/pKKeQrbu0) want 8 passive skills
+- [cobalt jewel](https://www.pathofexile.com/trade/search/Necropolis/voll4p9SE) 
 
 I will be building this build as I go along, getting good cheap stuff when it comes up on trade
 This looks like I will need ~100 divs for it to really come together
